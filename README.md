@@ -1,2 +1,0 @@
-# Farhad Bhuiyan-portfolio
-
